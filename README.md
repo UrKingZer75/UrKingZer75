@@ -13,7 +13,6 @@
 - we need to create all about business, startups, vc's and everything we really need to take togo to be
 - one of th best city in the world ...
 - 📫 How to reach me, come home after 18h40...
-- 😄 Pronouns: We, Us, You, I but sometimes
 - ⚡ Fun fact: Fiverr is not easy ooo !! I already try with some friends but look, we did or shoud
 - i say i did a banner like kings would have but the real problem i found on that is we need a vpn till
 - the first day... We got to do work like we in America... So we got to find a solution till the little
